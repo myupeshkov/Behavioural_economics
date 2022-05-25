@@ -1,1 +1,1 @@
-# Research in cours Behavioural_economics HSE
+# Research in Behavioural_economics HSE
